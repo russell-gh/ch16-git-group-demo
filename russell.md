@@ -1,1 +1,1 @@
-Hello World!
+Conflict helps growth
